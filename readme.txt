@@ -1,1 +1,1 @@
-"The Beast"
+"The Beast is the highest form of human evolution"
